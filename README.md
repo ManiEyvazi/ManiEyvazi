@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ManiEyvazi
+- 👀 I’m interested in Aerospace
+- 🌱 I’m currently learning coding
+- 📫 How to reach me Darkking13831@gmail.com
